@@ -1,5 +1,5 @@
 
-## 60x Speed Up Your RAG App Today
+## Speed Up Your RAG App Today
 
 ![car.jpg](https://i.ibb.co/RTFfgq9/download-1.png)
 
